@@ -5,4 +5,4 @@
 
 *mixtape out next fall*
 
-http://static.stereogum.com/uploads/2015/03/Kanye-chain.jpg
+![alt text](http://firsttoknow.s3.amazonaws.com/wp-content/uploads/2015/02/kanye-west-kissing-himself_558.-558x279.jpg)
