@@ -5,4 +5,4 @@
 
 *mixtape out next fall*
 
-![alt text](http://firsttoknow.s3.amazonaws.com/wp-content/uploads/2015/02/kanye-west-kissing-himself_558.-558x279.jpg)
+![alt text](http://service.ncddc.noaa.gov/rdn/www/media/interactive-maps/habmap.jpg)
